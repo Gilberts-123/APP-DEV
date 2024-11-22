@@ -1,0 +1,1 @@
+My favorite series anime is One Piece, Monkey  D. Luffy, a young boy, eats the Gum-Gum fruit, gaining rubber powers. He sets sail on the Grand Line, gathering a diverse crew, the Straw Hat Pirates. Luffy's dream, become Pirate King and find One Piece, the Legendary treasure left by previous King.
